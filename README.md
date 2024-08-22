@@ -1,0 +1,2 @@
+- Hi, I’m @onlydazi
+- Pronouns: He/Him/His
